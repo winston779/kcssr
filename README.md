@@ -1,6 +1,6 @@
 # kcssr卡车极速机场官网地址
 
-最新地址：[https://kcssr.me/](https://kcssr.wtf/auth/register?code=UCjj)
+最新地址：[kcssr.me](https://kcssr.wtf/auth/register?code=UCjj)
 
 ## kcssr卡车极速简介
 
